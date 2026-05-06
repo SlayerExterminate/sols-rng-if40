@@ -1,4 +1,4 @@
-
+Experience sol's rng like never before with automatic Script for sol's rng, the #1 Script. Includes one-hit kill and aimbot for unbeatable
 
 
 
